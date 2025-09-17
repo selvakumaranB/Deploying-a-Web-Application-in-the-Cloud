@@ -72,10 +72,13 @@ Amazon Web Services (AWS)
 <img width="1911" height="773" alt="image" src="https://github.com/user-attachments/assets/474393f5-1ea5-42e4-8c36-e7e38ff81ae9" />
 
 
+
 ![WhatsApp Image 2025-09-17 at 15 29 02_997541d1](https://github.com/user-attachments/assets/2fbb0388-0ab0-4eb1-8fd0-64c37837ab13)
 
 
+
 <img width="1919" height="775" alt="image" src="https://github.com/user-attachments/assets/4c598ddd-d83a-46eb-a2a2-f16f5832f8fc" />
+
 
 
 <img width="1919" height="776" alt="image" src="https://github.com/user-attachments/assets/0f3c6fc0-6731-491e-b1f5-4e5631e29c48" />
